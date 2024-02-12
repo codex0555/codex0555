@@ -1,4 +1,4 @@
-[![MasterHead](https://www.ganapatitravels.com/images/destination/67596darjeeling-banner.jpg)]
+![MasterHead](https://www.ganapatitravels.com/images/destination/67596darjeeling-banner.jpg)
 
 <h1 align="center">Yo, Ruka-Chan</h1>
 <h3 align="center">I like Mountains <3... The Way I like My Ex...</h3>
