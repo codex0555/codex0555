@@ -1,4 +1,4 @@
-![MasterHead](https://www.ganapatitravels.com/images/destination/67596darjeeling-banner.jpg)
+![MasterHead](https://media.meer.com/attachments/4eec5293d228fe646cc69916fefd7ada166a348c/store/fill/1860/1046/605df1de85136e5a43101ecab029206242f92dd2e10ff5f2792a03a428fd/View-from-Ganesh-Tok.jpg)
 
 <h1 align="center">Yo, Ruka-Chan</h1>
 <h3 align="center">I like Mountains <3... The Way I like My Ex...</h3>
